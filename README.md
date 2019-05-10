@@ -20,3 +20,14 @@ im：<a href="https://gitter.im/%E7%A1%85%E8%B0%B7/Lobby#">硅谷聊天室</a>
  * 山管第一火山C: 我的夏天
  * 工程总编PM : 没牌面的实习弟弟
  */
+
+* 哈哥
+本科北邮
+硕士东北带学
+acm final
+女朋友e
+csgo 1500
+哈药集团皇太子
+楼教主同事
+拒绝字节跳动offer
+拒绝google facebook面试邀请
